@@ -1,2 +1,2 @@
-# Cod_Soft_Task002
+Crafting an impactful portfolio involves selecting diverse projects that showcase your skills and versatility. Each piece should demonstrate your expertise, creativity, and problem-solving abilities. Strive for clarity, conciseness, and coherence in presentation. Quality over quantity is paramount; choose projects that best represent your abilities and align with your professional goals.
 Portfolio
